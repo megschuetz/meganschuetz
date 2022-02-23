@@ -1,0 +1,1 @@
+I'm motivated to come to Turing because I want to have a more challenging career. I'm excited to get into a field that is so technical, so concrete and that involves problem solving. I know this program is going to be challenging but also rewarding.
